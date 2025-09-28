@@ -1,7 +1,7 @@
 ## BYI,, ABOUT ME 
 
 
-<img align="right" src="https://media.discordapp.net/attachments/1102901674395324459/1419776273823039528/ivantill.png?ex=68d2fd31&is=68d1abb1&hm=c297e1597c97ccc314cd2c4ebeb88c6584722e0d055715249246359a313a760e&=&format=webp&quality=lossless">
+<img align="right" src="https://media.discordapp.net/attachments/1102901674395324459/1419776273823039528/ivantill.png?ex=68da3d71&is=68d8ebf1&hm=1faeb4c21576efdd2f3e22ae3d296f3be0e3c168d8729826623fc0ba99feb42e&=&format=webp&quality=lossless">
 alec/stelle mainly. i use loads of other names so if you know me by a different one feel free to call me that yay ^.^ 
 i dont mind about pronouns but i do prefer he and she :) -- <i>stupid freak idiot!</i>
 <img src="https://atabook.org/images/smileys/rose.gif") I'm also Yuri Scarian guy i draw them a lot. only as girls though </3
